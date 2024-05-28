@@ -1,0 +1,1 @@
+# Adobe-Bridge-activation-by-kiak
